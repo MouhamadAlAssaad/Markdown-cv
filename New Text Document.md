@@ -3,9 +3,9 @@
 
 **Location:** Al Bireh-Akkar, North Lebanon  
 **Date of Birth:** 08/21/2000  
-**Email:** mhamad.said.2182000@gmail.com 
-**Telephone:** +961 70593860 
-**Linked In profile:** https://www.linkedin.com/in/mhamad-al-assaad-856801246/
+**Email:** mhamad.said.2182000@gmail.com  
+**Telephone:** +961 70593860  
+**Linked In profile:** https://www.linkedin.com/in/mhamad-al-assaad-856801246/  
 
 # Objectives
 
