@@ -41,7 +41,13 @@ Socialized person and a good speaker with people.
  . Lebanon, Beirut
  . Dealing with people – Procurement – Maintenance
   
+# SKILLS
 
+* Analytical Thinking 
+* Team Leadership
+* Organization & Prioritization
+* Strong Communication
+* Problem Solving
    
 
   
